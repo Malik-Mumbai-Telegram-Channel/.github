@@ -19,6 +19,8 @@ Here’s what you’ll get after joining:
 
 If you want authentic information and real updates, only the **Malik Mumbai original Telegram link** will deliver.
 
+Must Check This Amazing Game [**Daman Invite Code**](https://github.com/Daman-Game-Invite-Code)
+
 ## 📢 Malik Mumbai Telegram Link - Join Now!
 
 ➡️ [**Click Here to Join the Real Malik Mumbai Telegram Channel**](https://telegram.me/+4W7zytfyRh9hNzY1)
